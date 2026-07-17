@@ -55,9 +55,6 @@
 
 **Total: 32+ Colleges with accurate cutoff ranges!**
 
+Working Link: https://joyful-crumble-afeb69.netlify.app/ 
 
 
-
-## 📸 Screenshots
-
-### Home Page
